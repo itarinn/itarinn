@@ -27,6 +27,6 @@ is it casual now?
 <p align="center"
   
 
-ㅤㅤㅤㅤ[rentry](https://rentry.co/angelsgardens)ㅤㅤㅤㅤㅤ[strawpage](rinnbon.straw.page)ㅤㅤㅤㅤㅤ[atabook](itarin.atabook.org)ㅤㅤㅤㅤㅤ[retrospring](https://retrospring.net/@itarinn)
+[rentry](https://rentry.co/angelsgardens)ㅤㅤㅤㅤㅤ[strawpage](rinnbon.straw.page)ㅤㅤㅤㅤㅤ[atabook](itarin.atabook.org)ㅤㅤㅤㅤㅤ[retrospring](https://retrospring.net/@itarinn)
 
 </p
